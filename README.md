@@ -6,4 +6,4 @@ I am a computer science student at University of San Francisco ([USF](https://ww
 - 🌎 I would love work on software development for edu/public/climate tech (Hit me up iTalki, Duolingo, Udemy, Google Classroom 👀)
 - 🍞🥖🥯🥐I enjoy eating bread
 - 🧵 And on the rare occasions that I have free time, I sew costumes and learn Arabic
-- 🧿 hatsh3p is a play on [Hatshepsut](https://en.wikipedia.org/wiki/Hatshepsut) and a reference who I am as an Egyptian-American and nonbinary person (I use she/they pronouns)
+- 🧿 hatsh3p is a play on [Hatshepsut](https://en.wikipedia.org/wiki/Hatshepsut) and a reference parts of my identity as an Egyptian-American and nonbinary person (I use she/they pronouns)
